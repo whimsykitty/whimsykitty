@@ -8,3 +8,5 @@
  (๑ºั . ºั๑) ‎ ‎ ‎ ‎fem terms or neu terms   ‎ ‎⦂ഒ
 <p align="center">
 𓏵‎ ‎ ‎   ‎ lolita n jfashion enthusiat    ‎  ´ཀ`
+<p align="center">
+<img src="https://64.media.tumblr.com/8193e078e6ac1fb2fc0de8a17bf9745d/61326d8e75577a8c-45/s250x400/fadfd45fb5643a382932e2679201642d82bcd4ae.gifv" width="200">  
