@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/bfe1a4b5c9ced0941b31f48403de0cca/282e2464b16e423b-17/s250x400/e9658037a87481b8ee0b3417750378fe43a38e69.gifv" width="300">  
+<img src="https://64.media.tumblr.com/75865118a7053418edb2d84f0439a9e7/a22de5d3e2afb3a5-33/s400x600/2ceac73d5cc19d095f14ee286a3e8d579afa1f0f.pnj" width="400">  
 <p align="center">
 <img src="https://64.media.tumblr.com/21c6ec64ae5698813eec48776041a0d6/452f4e6238aee5e0-3d/s400x600/851e884f0772e4d1a63160178b1678302018eea8.gifv" width="300">
 <p align="center">
@@ -10,3 +10,5 @@
 𓏵‎ ‎ ‎   ‎ lolita n jfashion enthusiat    ‎  ´ཀ`
 <p align="center">
 <img src="https://64.media.tumblr.com/8193e078e6ac1fb2fc0de8a17bf9745d/61326d8e75577a8c-45/s250x400/fadfd45fb5643a382932e2679201642d82bcd4ae.gifv" width="100"> 
+<p align="center">
+<img src="https://64.media.tumblr.com/75865118a7053418edb2d84f0439a9e7/a22de5d3e2afb3a5-33/s400x600/2ceac73d5cc19d095f14ee286a3e8d579afa1f0f.pnj" width="400">
