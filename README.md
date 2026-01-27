@@ -6,3 +6,5 @@
 <img src="https://64.media.tumblr.com/3b33c832d3d34472650ec6a85a699249/fbf6ddcbc47447d5-c7/s540x810/718090a55b2c2b3f088d7a67a4ed737cac5255b4.pnj" width="400">
 <p align="center">
  (๑ºั . ºั๑) ‎ ‎ ‎ ‎fem terms or neu terms   ‎ ‎⦂ഒ
+<p align="center">
+𓏵‎ ‎ ‎   ‎ lolita n jfashion enthusiat    ‎  ´ཀ`
