@@ -3,7 +3,7 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/4b7d56533eda20eaea74b4734f3a01f6/136f59329199be26-cb/s400x600/8fb106ebcc5486258456d07607c1ce367bb19c51.pnj" width="350">
 <p align="center">
-<img src="https://64.media.tumblr.com/3b33c832d3d34472650ec6a85a699249/fbf6ddcbc47447d5-c7/s540x810/718090a55b2c2b3f088d7a67a4ed737cac5255b4.pnj" width="400">
+<img src="https://64.media.tumblr.com/87a1a13af5a755c6081e3b6335c6cf19/acfb8e9945a555c7-cb/s400x600/a5cf04857396cbd91fd7e7e1d51ddac7276d495e.gifv" width="400">
 <p align="center">
  (๑ºั . ºั๑) ‎ ‎ ‎ ‎fem terms or neu terms   ‎ ‎⦂ഒ
 <p align="center">
