@@ -3,8 +3,8 @@
 <p align="center">
 <img src="https://files.catbox.moe/suiq71.webp" width="60">
 <p align="center">
-  <a href=https://dollimiette.atabook.org/><sub>atabook</sub></a>
-  &nbsp;  &nbsp; 
-  <a href=https://en.pronouns.page/@lalis><sub>prns</sub></a>
+<a href=https://dollimiette.atabook.org/><sub>atabook</sub></a>
+&nbsp;  &nbsp; 
+<a href=https://en.pronouns.page/@lalis><sub>prns</sub></a>
 </p>
 
