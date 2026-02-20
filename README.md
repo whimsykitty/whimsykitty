@@ -7,3 +7,8 @@
 &nbsp;  &nbsp; 
 <a href=https://en.pronouns.page/@lalis><sub>prns</sub></a>
 </p>
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=8betadvsf2fdiej98mmvsq8n4&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=8betadvsf2fdiej98mmvsq8n4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=dcfefe&interchange=true&profanity=false&bar_color=c9bbfc&bar_color_cover=true">
+  </a>
+</p>
