@@ -5,7 +5,7 @@
   </a>
 </p>
 <p align="center">
-<img src="https://github.com/user-attachments/assets/55e9a698-75f4-4f6f-b902-95722fa053aa" width="200">
+<img src="https://github.com/user-attachments/assets/55e9a698-75f4-4f6f-b902-95722fa053aa" width="300">
 <p align="center">
 <img src="https://files.catbox.moe/suiq71.webp" width="60">
 <p align="center">
