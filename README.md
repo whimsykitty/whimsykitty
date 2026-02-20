@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://github.com/user-attachments/assets/66d94683-78d1-4db6-9afc-77c8eaffe61a"  width="200">
+<img src="https://github.com/user-attachments/assets/55e9a698-75f4-4f6f-b902-95722fa053aa" width="200">
 <p align="center">
 <img src="https://files.catbox.moe/suiq71.webp" width="60">
 <p align="center">
